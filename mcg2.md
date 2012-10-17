@@ -54,3 +54,24 @@ wat zijn de verschillen met andere stukken in die tijd
 tijdgeest
 --
 
+## Retorica en Symboliek
+
+### Retorica
+
+1. Inventio, uitvinden van het thema
+2. Dispositio, opbouw
+3. Decoratio, stijl
+4. Leren
+5. 
+
+
+### Presentatie 
+10 minuten, 7 min praten, 3 min fragmenten
+
+Neem een stuk en vertel over de noten en hun betekenis er achter.
+
+14 november
+- Guillaume de Machaud met de Koketus tekchniek
+
+
+
