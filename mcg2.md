@@ -61,9 +61,20 @@ tijdgeest
 1. Inventio, uitvinden van het thema
 2. Dispositio, opbouw
 3. Decoratio, stijl
-4. Leren
-5. 
+4. Memoria, leren
+5. Pronontatio, uitspreken van toespraak
 
+In de renaissance gaan oude griekse ideeen weer belangrijk worden.
+Componisten moeten van retorica afweten omdat ze de juiste emoties moeten raken.
+Muziek moet emoties in beweging brengen.
+Door de reformatie wordt de retorica belangrijker om omdat het in de vilkstaal werd geschreven.
+
+Er zijn verschillende soorten retorisch eideeen maar geven soms een andere uitleg.
+
+- Hypotyposis. Er zijn figuren die iets nabootsen, Christus kwam uit de hemel met dalende noten
+- Hypobool Iets overdrijven, blabla bla en JESUS CHRISTUS bla bla
+
+Symboliek
 
 ### Presentatie 
 10 minuten, 7 min praten, 3 min fragmenten
